@@ -1,0 +1,1 @@
+# galaksi-sim-lasyonu-oyunu
